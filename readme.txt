@@ -1,0 +1,1 @@
+Hello everyone, jsjsjsjs la verdad no se ingles, bueno, dime ahora que vamos a hacer, espero ordenes jefe.
